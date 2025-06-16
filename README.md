@@ -17,7 +17,7 @@
 - [Instagram](https://instagram.com/machete0198424)
 - [Threads](https://threads.com/@machete0198424)
 - [DeviantArt](https://deviantart.com/vernehmt)
-- [Tumblr](https://vernehmt.tumblr.com)
+- [Tumblr](https://tumblr.com/vernehmt)
 - [Pinterest](https://pinterest.com/vernehmt)
 - [Reddit](https://reddit.com/user/isolateddagger)
 
