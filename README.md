@@ -1,9 +1,13 @@
-# ⚜️ Vernehmt
+# ⚜️ Vernehmt (Dagger, SevenSlash)
 
 🧷 **-18*, female
+
  Isolated dagger. 
+ 
  Asocial nerd with niche interests.
+ 
  In love with the phenomenal.
+ 
  Demented visionary. 
 
 ---
