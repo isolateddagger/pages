@@ -20,7 +20,7 @@
 - [Tumblr](https://vernehmt.tumblr.com)
 - [Pinterest](https://pinterest.com/vernehmt)
 - [Reddit](https://reddit.com/user/isolateddagger)
-- 
+
 
 ---
 
