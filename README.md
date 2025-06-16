@@ -1,9 +1,13 @@
-# ⚜️ Vernehmt
+# ⚜️ Vernehmt (Dagger, SevenSlash)
 
-🧷 **-18*, female
+🔱  *-18*, female
+
  Isolated dagger. 
+ 
  Asocial nerd with niche interests.
+ 
  In love with the phenomenal.
+ 
  Demented visionary. 
 
 ---
@@ -28,10 +32,3 @@ My works highly do not affiliate with any sort of AI, everything posted is made 
 
 > _For God's love don't copy or steal my works, even re-sharing my works without permission. My works are highly protected by copyright. At least send a message or credit me with my username in your post if you cannot message. In some accounts, uh don’t scroll further my works there, they’re old ._
 
----
-
-##  boo
-
-([images/sketch1.png](https://pin.it/6qhAA2Rfx))
-
----
