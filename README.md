@@ -1,8 +1,3 @@
----
-title: "Vernehmt"
-layout: default
----
-
 # 🔱 Vernehmt
 
 🧷 **Under 18**, she/her  
