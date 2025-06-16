@@ -1,34 +1,37 @@
-# 🔱 Vernehmt
+# ⚜️ Vernehmt
 
-🧷 **Under 18**, she/her  
-🖋️ Illustrator of graphite ghosts, decayed pixels, and tangled wires  
-💻 Traditional + digital. Gothic, surreal, tender.
-
----
-
-## 🔱 Gallery
-
-![Sketch 1](images/sketch1.png)
-![Sketch 2](images/sketch2.png)
+🧷 **-18*, female
+ Isolated dagger. 
+ Asocial nerd with niche interests.
+ In love with the phenomenal.
+ Demented visionary. 
 
 ---
 
-## 🔱 Links
+## 🗝️ Links
 
-- [Instagram](https://instagram.com/yourhandle)
-- [DeviantArt](https://deviantart.com/yourname)
-- [ArtStation](https://artstation.com/yourname)
-- [Reddit](https://reddit.com/user/yourusername)
-- [Ko-fi](https://ko-fi.com/yourname)
-
----
-
-## ☠🔱 Warnings
-
-- Body horror, melancholy, analog tech themes
-- No NSFW
-- Viewer discretion advised
+- [Instagram](https://instagram.com/machete0198424)
+- [Threads](https://threads.com/@machete0198424)
+- [DeviantArt](https://deviantart.com/vernehmt)
+- [Telegram] (https://t.me/vernehmt)
+- [Tumblr](https://vernehmt.tumblr.com)
+- [Pinterest](https://pinterest.com/vernehmt)
+- [Reddit](https://reddit.com/user/isolateddagger)
+- 
 
 ---
 
-> _I make my own wires. I draw what I can't explain. This is my little corner._
+## ❕ Please note that...
+
+My works highly do not affiliate with any sort of AI, everything posted is made by myself with hard work. Some works of mine may contain blood and minimalist gore. No sexual content or disrespectful content is shown in my works. 
+---
+
+> _For God's love don't copy or steal my works, even re-sharing my works without permission. My works are highly protected by copyright. At least send a message or credit me with my username in your post if you cannot message. In some accounts, uh don’t scroll further my works there, they’re old ._
+
+---
+
+##  boo
+
+([images/sketch1.png](https://pin.it/6qhAA2Rfx))
+
+---
