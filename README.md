@@ -7,7 +7,7 @@
 
 ---
 
-## 🗝️ Links
+##  Links: My Accounts
 
 - [Instagram](https://instagram.com/machete0198424)
 - [Threads](https://threads.com/@machete0198424)
@@ -19,7 +19,7 @@
 
 ---
 
-## ❕ Please note that...
+##  Please note that...
 
 My works highly do not affiliate with any sort of AI, everything posted is made by myself with hard work. Some works of mine may contain blood and minimalist gore. No sexual content or disrespectful content is shown in my works. There are always limits.
 ---
